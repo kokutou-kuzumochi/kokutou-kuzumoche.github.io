@@ -1,0 +1,1 @@
+# kokutou-kuzumoche.github.io
